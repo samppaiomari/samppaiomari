@@ -1,5 +1,5 @@
 - 👋 Hello everyone, I’m Mariana Sampaio (●'◡'●)
-- I don't know why i'm doing it, but i like programming and above all of it i like discover new things, so here we go!
+- I don't know why i'm doing it, but i like to programm and above at all i like discover new things, so here we go!
 - If you work with geophysics or electric engineer or anything else envolving Science, welcome to my little world.
 - ......
 - .....
