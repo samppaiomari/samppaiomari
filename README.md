@@ -1,4 +1,5 @@
- 👋 Hello everyone, I’m Mariana Sampaio (●'◡'●)
+ 👋 Hello everyone, I’m Mariana Sampaio (●'◡'●)  
+ 
  If you work with geophysics or electrical engineering or anything else envolving Science, welcome to my little world.
  ......
  .....
